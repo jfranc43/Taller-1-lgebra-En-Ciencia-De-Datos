@@ -2,9 +2,9 @@
 
 Un cordial saludo, profe. Mediante este medio realizo la entrega del primer taller de la materia realizado por el equipo conformado por:
 
-Isaac Eli Ferrucho Maloof 
-Santiago Gómez Barbosa 
-Juan Camilo Franco Roja 
+Isaac Eli Ferrucho Maloof, 
+Santiago Gómez Barbosa, 
+Juan Camilo Franco Roja, 
 David Immanuel Trefftz Restrepo
 
 
